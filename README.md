@@ -228,6 +228,12 @@ PNL & Fumble Cards.
 
 **One extension. Five trading platforms.**
 
+
+
+https://github.com/user-attachments/assets/46c6a138-4dce-4b1e-bd87-3522ebc89db6
+
+
+
 <img width="1366" height="3859" alt="Untitled design (24)" src="https://github.com/user-attachments/assets/ec8ac66e-b6d7-4366-bf12-0846a70849ff" />
 
 
